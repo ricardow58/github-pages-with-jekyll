@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+So cool that you made it.  Want to talk about how cool this page is going to look later.
